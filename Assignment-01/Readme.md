@@ -1,1 +1,1 @@
-All the screenshots for Assignemnt-01
+All the screenshots for Assignmnt-01
